@@ -1,0 +1,1 @@
+Estes são os ficheiros que conseguimos guardar nas aulas laboratoriais. Os ficheiros restantes foram perdidos.
